@@ -1,2 +1,3 @@
 # Hello-World
-the first repository to share some of options in my brain
+Hi Humans!
+I'd liske to share some of ideas in my brain, mabe it is boring or interest, I hope we can kearn together!
